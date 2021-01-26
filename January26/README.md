@@ -1,4 +1,4 @@
-# Self-portrait excercise
+# Self-portrait exercise
 
 ![](January26/ScreenShot.png)
 
